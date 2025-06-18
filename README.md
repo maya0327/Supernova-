@@ -15,5 +15,5 @@
 - Coming soon...
 
 ## 📫 Let's Connect
-- Instagram: @__snow.flake.z__
+- Instagram: @___snow.flake.z___
 - Email: srijitamondal0805@gmail.com
